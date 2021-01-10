@@ -10,8 +10,8 @@ https://youtu.be/AJVnSklB9ho
 -----------
 # Created by
 -----------
-Kanokvan Sangvaraporn
-Chanismon Thangprakob
-Chotika Trakulnuch
-Nathamon Boonprasert
+Kanokvan Sangvaraporn | 
+Chanismon Thangprakob | 
+Chotika Trakulnuch | 
+Nathamon Boonprasert | 
 Nichakan Sukhumjitpitayotai
